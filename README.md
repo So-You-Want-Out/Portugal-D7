@@ -13,7 +13,7 @@ The D7 also requires a criminal background check. You are ineligible if you have
 ______________________
 TO APPLY
 
-You must first apply through a consulate in your country. This must be done in person. They take approximately 60 days to process your application and if successful, you then have a 4 month visa whicih allows you to relocate. Once in Portugal you will have another appointment at which time your 4 month visa is converted to a 2 year residence permit.
+You must first apply through a consulate in your country. This must be done in person. They take approximately 60 days to process your application and if successful, you then have a 4 month visa whicih allows you to relocate. Once in Portugal you will have another appointment at which time your 4 month visa is converted to a 2 year residence permit. This 2 year residence permit is renewable.
 
 _______________________
 CITIZENSHIP/PERMANENT RESIDENCY
